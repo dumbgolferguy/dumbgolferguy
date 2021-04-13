@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dumbgolferguy
+- 👀 I’m interested in science, rockets, airplanes, history, coding, and economics
+- 🌱 I’m currently a student at school, but in my free time I'm (tying to) learn html, python,
+- you can reach me through scratch http://scractch.mit.edu/users/dumbgolferguy
